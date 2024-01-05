@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **adeyemimuaz101@gmail.com**
 
-- ⚡ Fun fact **I think**
+- ⚡ Fun fact **I love solving complex problems, reading articles about tech, watching soccer **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
